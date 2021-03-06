@@ -5,3 +5,5 @@
 - feijão
 - arroz
 - leite
+
+Entre em contato com o **Alessandro Feitoza** através do telefone `85 9 8674-0502`
